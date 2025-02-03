@@ -3,7 +3,7 @@
 
 Contact Me:
 
-✉ Email: dousg@tongji.edu.cn
+✉ Email: doushuguang52@163.com
 
 ✧ Website: https://shuguang-52.github.io/
 
